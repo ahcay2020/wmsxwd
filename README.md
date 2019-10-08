@@ -1,4 +1,4 @@
-最新地址：https://wmsxwd.zone
+最新地址：https://wmsxwd666.men
 
 备用地址：https://wmsxwd.in https://wmsxwd.men 
 
